@@ -6,8 +6,6 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Subspace%20pre%20disaster.png">
 ㅤ ㅤ ㅤ  He/they/any
 
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ [ata](https://swans.atabook.org/)
-<p >
-  <img width="300" height="250" alt="Image" src="https://github.com/user-attachments/assets/dd5858d4-c33a-4e67-80ad-9924c8eacf96" />
-</p>
+
 <br clear="left">
 

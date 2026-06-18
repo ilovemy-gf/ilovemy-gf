@@ -10,7 +10,7 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Subspace%20pre%20disaster.png">
 
 
 
-<img align="right" width="567" src="https://file.garden/aiO9m-bAgXvOABPl/tumblr_50bc321e975c2b02c7873a55cf6db65d_a5e62d28_2048.png">
+<img align="right" width="550" src="https://file.garden/aiO9m-bAgXvOABPl/tumblr_50bc321e975c2b02c7873a55cf6db65d_a5e62d28_2048.png">
 
 <br clear="left">
 

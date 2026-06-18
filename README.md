@@ -6,11 +6,11 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Subspace%20pre%20disaster.png">
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ $\color{#FF0095}\textsf{Sub}$ $\color{#8F8F8F}\textsf{/Sebby}$
 ㅤ ㅤ ㅤ  He/they/any
 
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ [ata](https://swans.atabook.org/)
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ [ata](https://swans.atabook.org/) 
 
 
 
-<img align="right" width="567" src="https://file.garden/aiO9m-bAgXvOABPl/tumblr_555bf18b6c5b7bd26497d012cc34d2e1_136022df_1280.webp">
+<img align="right" width="567" src="https://file.garden/aiO9m-bAgXvOABPl/tumblr_50bc321e975c2b02c7873a55cf6db65d_a5e62d28_2048.png">
 
 <br clear="left">
 

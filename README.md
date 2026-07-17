@@ -1,4 +1,4 @@
-<img align="left" width="250"
+<img align="left" width="259"
 src="https://file.garden/aiO9m-bAgXvOABPl/Screenshot%20(991).png">
 
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ "This city will be even more beautiful under Blackrock's reign."

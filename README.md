@@ -3,7 +3,7 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Screenshot%20(991).png">
 
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ"This city will be even more beautiful under Blackrock's reign."
 
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  $\color{#FF0095}\textsf{Sub}$ $\color{#8F8F8F}\textsf{/Sebby}$
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ$\color{#FF0095}\textsf{Sub}$ $\color{#8F8F8F}\textsf{/Sebby}$
 ㅤ ㅤ ㅤHe/they/any
 
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ──── .✦ c+h freely/enc, dncoveruf lateresps

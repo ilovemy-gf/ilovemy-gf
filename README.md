@@ -8,7 +8,7 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Screenshot%20(991).png">
 
 ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ──── .✦ c+h freely/enc, dncoveruf no/lateresps, always afk
 
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ <a href="https://paparazzi.atabook.org/">ata</a>
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  <a href="https://paparazzi.atabook.org/">ata</a>
     ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ   ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ  <a href="https://github.com/ilovemy-gf">
   <img src="https://komarev.com/ghpvc/?username=ilovemy-gf&label=BIOGRAFTS&color=ff0095&style=flat" />
